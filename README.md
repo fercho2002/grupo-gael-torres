@@ -1,3 +1,3 @@
-# grupo-yael-torres-yohan
+# grupo-yael-torres-johan
 
 Es yael o gael maestro
